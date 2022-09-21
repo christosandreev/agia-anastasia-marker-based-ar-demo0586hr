@@ -1,1 +1,0 @@
-# agia-anastasia-marker-based-ar-demo0586hr
